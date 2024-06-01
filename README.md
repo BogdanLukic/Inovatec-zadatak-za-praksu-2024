@@ -1,0 +1,1 @@
+# Inovatec-zadatak-za-praksu-2024
